@@ -1,4 +1,6 @@
 - 👋 Hi, I’m @Barrymore-Pool-Attendant
+- Seems i wrote tons, Haha, profile it is then? Thought readme was a buried file, ffs... This means a spell check, fucking drafted, fuck that took me 2 hrs....V0.3 if you like... ..
+-  TL:DR Dont read or do read... 
 - 👀 I’m interested in ... Freesoftware, generally better than any paid software by comparison. Devs, i do, if i like your work, DONATE.com, 
 - Devs need my thanks, but, probably get an attic full of likes and tyvm, it don't pay the bills. My opinion is what it is for myself. Donations if can afford it, 
 - if not got dollar, uk gbp, then it just gets put on the waiting list. Swear to god mate, trust mate.. Lol. always donate eventually....
